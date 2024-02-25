@@ -22,4 +22,4 @@ But that’s not all — you have the option to customize your bowl with a varie
 This mouthwatering creation features double hashbrowns, two slices of melted American cheese, and two scrambled eggs, all generously studded with hickory-smoked ham chunks. It’s a perfect harmony of flavors and textures that promises to satisfy your morning cravings. So, why wait? Head to Waffle House and treat yourself to the Ham Egg & Cheese Hashbrown Bowl for a breakfast experience like no other.
 **US$8.85/780 Calories**
 
-For More Info Please visit: [Wafflehousemenus.com](https://wafflehousemenus.com/)
+For More Info Please visit: [Wafflehousemenus.com](https://wafflehousemenus.com/) Also [Whatpriceis.com](https://whatpriceis.com/)
